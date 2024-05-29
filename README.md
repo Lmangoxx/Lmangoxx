@@ -1,4 +1,4 @@
-### Hi there 👋
+### 须知少年凌云志，曾许人间第一流。
 
 <!--
 **Lmangoxx/Lmangoxx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
